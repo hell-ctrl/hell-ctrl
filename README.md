@@ -22,7 +22,7 @@
 
 </div><br/>
 
-Comecei a estudar programação aos meus 16 anos e nunca mais consegui parar :) amo o que faço. 👨‍💻
+nem te conto 
 
 
 
